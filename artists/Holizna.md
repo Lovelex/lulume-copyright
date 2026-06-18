@@ -2,9 +2,9 @@
 
 ⬅ [Índice](../README.md) · 🌐 [English](Holizna.en.md)
 
-218 faixas · 10:50:31.
+216 faixas · 10:45:07.
 
-**Links:** [bandcamp](https://holiznaroyaltyfree.bandcamp.com/) · [freemusicarchive](https://freemusicarchive.org/music/holiznacc0/) · [buymeacoffee](https://buymeacoffee.com/holizna)
+**Links:** [freemusicarchive](https://freemusicarchive.org/music/holiznacc0/) · [bandcamp](https://holiznaroyaltyfree.bandcamp.com/) · [buymeacoffee](https://buymeacoffee.com/holizna)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._
@@ -31,7 +31,6 @@ _Os textos de licença abaixo são tradução informativa — os termos originai
 | Blue Skies | CC0 | 00:02:56 |
 | Boidae | Patreon | 00:03:07 |
 | Boredom | CC0 | 00:02:51 |
-| Bouncing | CC0 | 00:01:28 |
 | Brazilianite | Patreon | 00:03:28 |
 | Bubbles | CC0 | 00:02:28 |
 | Bus Stop | CC0 | 00:03:16 |
@@ -74,7 +73,6 @@ _Os textos de licença abaixo são tradução informativa — os termos originai
 | Dreamy Reverie | CC0 | 00:02:24 |
 | Ease into Night | CC0 | 00:02:32 |
 | Elapidae | Patreon | 00:03:28 |
-| Endless Grind | CC0 | 00:03:56 |
 | Escape Hatch2 | Patreon | 00:03:00 |
 | Eurycea bislineata | Patreon | 00:03:32 |
 | Evening Hours | Patreon | 00:03:00 |

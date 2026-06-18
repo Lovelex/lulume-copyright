@@ -4,7 +4,7 @@
 
 49 tracks · 01:23:46.
 
-**Links:** [spotify](https://open.spotify.com/artist/0vg08N1z9G9LrGLkG1nNDS) · [bandcamp](https://mujobeatz.bandcamp.com/music) · [instagram](https://www.instagram.com/mujobeatz) · [facebook](https://www.facebook.com/mujobeatz) · [youtube](https://www.youtube.com/user/MUJOBEATZ) · [vinyls](https://www.vinyl-digital.com/index.php?lang=0&cl=search&searchparam=Mujo) · [discogs](https://www.discogs.com/artist/3398018-Mujo%E6%83%85) · [apple_music](https://music.apple.com/us/artist/mujo/379501328) · [twitter](https://x.com/mujobeatz) · [deezer](https://www.deezer.com/en/artist/7718446)
+**Links:** [soundcloud](https://soundcloud.com/MUJOBEATZ) · [spotify](https://open.spotify.com/artist/0vg08N1z9G9LrGLkG1nNDS) · [bandcamp](https://mujobeatz.bandcamp.com/music) · [instagram](https://www.instagram.com/mujobeatz) · [facebook](https://www.facebook.com/mujobeatz) · [youtube](https://www.youtube.com/user/MUJOBEATZ) · [vinyls](https://www.vinyl-digital.com/index.php?lang=0&cl=search&searchparam=Mujo) · [discogs](https://www.discogs.com/artist/3398018-Mujo%E6%83%85) · [apple_music](https://music.apple.com/us/artist/mujo/379501328) · [twitter](https://x.com/mujobeatz) · [deezer](https://www.deezer.com/en/artist/7718446)
 
 **Licenses:**
 - **DirectPermission** — Direct permission from the author by email — authorized for use on the Lulume radio. _Basis:_ direct permission from the author by email. _Scope:_ streaming on the Lulume radio (24/7).
