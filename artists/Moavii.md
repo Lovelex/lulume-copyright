@@ -4,7 +4,7 @@
 
 20 faixas · 00:45:43.
 
-**Links:** [freetouse](https://freetouse.com/music/moavii)
+**Links:** [spotify](https://open.spotify.com/artist/3geeWs62nEhBuqTVfP48UT) · [soundcloud](https://soundcloud.com/moavii) · [instagram](https://www.instagram.com/moaviimusic) · [freetouse](https://freetouse.com/music/moavii)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

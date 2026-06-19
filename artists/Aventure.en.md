@@ -4,7 +4,7 @@
 
 28 tracks · 01:10:11.
 
-**Links:** [freetouse](https://freetouse.com/music/aventure)
+**Links:** [youtube](https://music.youtube.com/channel/UC_ZA-l5Qacb8N0y7qnPQUOA) · [spotify](https://open.spotify.com/artist/4GR5dNDgCZCgkcD6CgRxSb) · [apple_music](https://music.apple.com/us/artist/aventure/1746520711) · [freetouse](https://freetouse.com/music/aventure)
 
 **Licenses:**
 - **FreeToUse** — Licensed via the Free To Use (freetouse.com) Personal plan — authorized for use on the Lulume radio. _Basis:_ Free To Use paid Personal plan. _Condition:_ the Free To Use Personal plan must remain active.

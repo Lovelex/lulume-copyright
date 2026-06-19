@@ -4,7 +4,7 @@
 
 77 faixas · 03:20:26.
 
-**Links:** [freetouse](https://freetouse.com/music/lukrembo)
+**Links:** [youtube](https://www.youtube.com/channel/UCcUuUhBChMXm-irdwoFT-vg) · [spotify](https://open.spotify.com/artist/2mvFGnu3tPO49WSrFZ4zVR) · [soundcloud](https://soundcloud.com/lukrembo) · [instagram](https://www.instagram.com/lukrembo/) · [freetouse](https://freetouse.com/music/lukrembo)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

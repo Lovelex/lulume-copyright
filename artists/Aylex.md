@@ -4,7 +4,7 @@
 
 4 faixas · 00:08:37.
 
-**Links:** [freetouse](https://freetouse.com/music/aylex)
+**Links:** [youtube](https://youtube.com/@alexproductionsnocopyright) · [spotify](https://open.spotify.com/artist/1mVjDF2O3363PeWA9pCAKI) · [soundcloud](https://soundcloud.com/alexproductionsmusic) · [website](https://onsound.eu) · [patreon](https://patreon.com/c/alexproductionsnocopyrightmusic) · [freetouse](https://freetouse.com/music/aylex)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

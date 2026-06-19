@@ -4,7 +4,7 @@
 
 48 faixas · 02:02:18.
 
-**Links:** [freetouse](https://freetouse.com/music/massobeats)
+**Links:** [youtube](https://www.youtube.com/@massobeats) · [spotify](https://open.spotify.com/artist/0mjgzs919VW35PWllP5eCT) · [soundcloud](https://soundcloud.com/beatsbymasso) · [tiktok](https://www.tiktok.com/@masso.beats) · [freetouse](https://freetouse.com/music/massobeats)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

@@ -4,7 +4,7 @@
 
 48 tracks · 02:02:18.
 
-**Links:** [freetouse](https://freetouse.com/music/massobeats)
+**Links:** [youtube](https://www.youtube.com/@massobeats) · [spotify](https://open.spotify.com/artist/0mjgzs919VW35PWllP5eCT) · [soundcloud](https://soundcloud.com/beatsbymasso) · [tiktok](https://www.tiktok.com/@masso.beats) · [freetouse](https://freetouse.com/music/massobeats)
 
 **Licenses:**
 - **FreeToUse** — Licensed via the Free To Use (freetouse.com) Personal plan — authorized for use on the Lulume radio. _Basis:_ Free To Use paid Personal plan. _Condition:_ the Free To Use Personal plan must remain active.

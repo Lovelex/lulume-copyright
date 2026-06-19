@@ -4,7 +4,7 @@
 
 10 tracks · 00:26:57.
 
-**Links:** [freetouse](https://freetouse.com/music/filo-starquez)
+**Links:** [youtube](https://www.youtube.com/@FiloStarquez) · [spotify](https://open.spotify.com/artist/0Xel4QYxb6KOcnHUmVQeb6) · [soundcloud](https://soundcloud.com/filo-starquez) · [instagram](https://www.instagram.com/filo_starquez/) · [website](https://www.tubebackrmusic.com/) · [freetouse](https://freetouse.com/music/filo-starquez)
 
 **Licenses:**
 - **FreeToUse** — Licensed via the Free To Use (freetouse.com) Personal plan — authorized for use on the Lulume radio. _Basis:_ Free To Use paid Personal plan. _Condition:_ the Free To Use Personal plan must remain active.

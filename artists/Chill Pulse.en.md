@@ -4,7 +4,7 @@
 
 14 tracks · 00:31:02.
 
-**Links:** [freetouse](https://freetouse.com/music/chill-pulse)
+**Links:** [spotify](https://open.spotify.com/artist/3QQdDUTZkHrmUjG4Emi4R4) · [freetouse](https://freetouse.com/music/chill-pulse)
 
 **Licenses:**
 - **FreeToUse** — Licensed via the Free To Use (freetouse.com) Personal plan — authorized for use on the Lulume radio. _Basis:_ Free To Use paid Personal plan. _Condition:_ the Free To Use Personal plan must remain active.

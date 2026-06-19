@@ -4,7 +4,7 @@
 
 1 faixas · 00:02:52.
 
-**Links:** [freetouse](https://freetouse.com/music/johny-grimes)
+**Links:** [youtube](https://www.youtube.com/channel/UC0c3dLG6wHmuLx65WYfAPVg) · [spotify](https://open.spotify.com/artist/32qFjfrKqM9rLXhTbtqblU) · [apple_music](https://music.apple.com/us/artist/johny-grimes/1468680874) · [soundcloud](https://soundcloud.com/johny-grimes) · [instagram](https://www.instagram.com/johny_grimes_music/) · [facebook](https://www.facebook.com/profile.php?id=100024763610439) · [freetouse](https://freetouse.com/music/johny-grimes)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

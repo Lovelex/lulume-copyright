@@ -4,7 +4,7 @@
 
 2 faixas · 00:04:29.
 
-**Links:** [freetouse](https://freetouse.com/music/amine-maxwell)
+**Links:** [bandcamp](https://aminemaxwell.bandcamp.com/) · [spotify](https://open.spotify.com/artist/7fBgvBDrg5ZA7YvweEd1Ii) · [soundcloud](https://soundcloud.com/aminemaxwell) · [instagram](https://instagram.com/aminemaxwell/) · [twitter](https://twitter.com/AmineMaxwell) · [facebook](https://www.facebook.com/AmineMaxwellMusic) · [freetouse](https://freetouse.com/music/amine-maxwell)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

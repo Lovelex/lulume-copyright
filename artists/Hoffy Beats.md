@@ -4,7 +4,7 @@
 
 4 faixas · 00:10:13.
 
-**Links:** [freetouse](https://freetouse.com/music/hoffy-beats)
+**Links:** [youtube](https://www.youtube.com/@hoffybeats9093) · [spotify](https://open.spotify.com/artist/2z92TjllsDfZLyBjp0SDuq) · [apple_music](https://music.apple.com/br/artist/hoffy-beats/1492049961) · [soundcloud](https://soundcloud.com/hoffybeats) · [instagram](https://www.instagram.com/hoffybeats/) · [freetouse](https://freetouse.com/music/hoffy-beats)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

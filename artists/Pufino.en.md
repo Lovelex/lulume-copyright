@@ -4,7 +4,7 @@
 
 19 tracks · 00:43:52.
 
-**Links:** [freetouse](https://freetouse.com/music/pufino)
+**Links:** [youtube](https://www.youtube.com/@Pufino) · [spotify](https://open.spotify.com/artist/74lQ20K0cPHDUlt6AtKq0p) · [freetouse](https://freetouse.com/music/pufino)
 
 **Licenses:**
 - **FreeToUse** — Licensed via the Free To Use (freetouse.com) Personal plan — authorized for use on the Lulume radio. _Basis:_ Free To Use paid Personal plan. _Condition:_ the Free To Use Personal plan must remain active.

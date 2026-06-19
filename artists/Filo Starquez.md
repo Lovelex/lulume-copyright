@@ -4,7 +4,7 @@
 
 10 faixas · 00:26:57.
 
-**Links:** [freetouse](https://freetouse.com/music/filo-starquez)
+**Links:** [youtube](https://www.youtube.com/@FiloStarquez) · [spotify](https://open.spotify.com/artist/0Xel4QYxb6KOcnHUmVQeb6) · [soundcloud](https://soundcloud.com/filo-starquez) · [instagram](https://www.instagram.com/filo_starquez/) · [website](https://www.tubebackrmusic.com/) · [freetouse](https://freetouse.com/music/filo-starquez)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

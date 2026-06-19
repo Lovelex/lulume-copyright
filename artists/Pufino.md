@@ -4,7 +4,7 @@
 
 19 faixas · 00:43:52.
 
-**Links:** [freetouse](https://freetouse.com/music/pufino)
+**Links:** [youtube](https://www.youtube.com/@Pufino) · [spotify](https://open.spotify.com/artist/74lQ20K0cPHDUlt6AtKq0p) · [freetouse](https://freetouse.com/music/pufino)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

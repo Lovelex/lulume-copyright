@@ -4,7 +4,7 @@
 
 1 faixas · 00:02:16.
 
-**Links:** [freetouse](https://freetouse.com/music/tetuano)
+**Links:** [youtube](https://www.youtube.com/@tetuanomusic) · [spotify](https://open.spotify.com/artist/6CBNSeit4fC8HSI8l050Gh) · [soundcloud](https://soundcloud.com/tetuano) · [website](https://www.free-stock-music.com/artist.tetuano.html) · [freetouse](https://freetouse.com/music/tetuano)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._

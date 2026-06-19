@@ -4,7 +4,7 @@
 
 14 faixas · 00:31:02.
 
-**Links:** [freetouse](https://freetouse.com/music/chill-pulse)
+**Links:** [spotify](https://open.spotify.com/artist/3QQdDUTZkHrmUjG4Emi4R4) · [freetouse](https://freetouse.com/music/chill-pulse)
 
 **Licenças:**
 _Os textos de licença abaixo são tradução informativa — os termos originais valem em inglês._
